@@ -1,2 +1,2 @@
 # 187
-Hi Namma, my name is Guy.
+Hi Naama, my name is Guy.
